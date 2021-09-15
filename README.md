@@ -214,15 +214,60 @@ Garam dan lada, secukupnya
 
 • Alat & Bahan
 
+3 Ekor kepiting sedang yang masih hidup
+6 Butir bawang merah
+6 Siung bawang putih
+2 cm jahe
+1 Sendok makan saus tiram
+1 Sendok makan saus sambal/tomat
+1 Sendok makan kecap manis
+1 Batang daun bawang
+1 Sendok makan merica bubuk
+Garam secukupnya
+Gula pasir secukupnya
+Minyak goreng secukupnya
 
 • Proses Pembuatan
 
-
+Cara memasak kepiting asam manis:
+Jerang kepiting di dalam air mendidih. Jika kepiting sudah tidak bergerak lagi, masukkan ke dalam air dingin dan bersihkan. Bersihkan insang dan buang kotoran yang ada di dalamnya.
+Cuci bersih kepiting, kemudian potong menjadi dua bagian atau remukkan agar nantinya bumbu asam manis bisa meresap.
+Haluskan bawang merah, bawang putih, dan jahe. Kemudian tumis dengan sedikit minyak goreng.
+Bumbui dengan saus sambal, saus tiram, garam, gula, dan merica bubuk. Tambahkan sedikit air agar bumbu tidak hangus. Masukkan kepiting, kemudian masak hingga bumbu meresap.
+Setelah kepiting matang dan nanas layu, angkat masakan dari kompor. Sajikan di atas piring dan taburi dengan daun bawang yang sudah diiris halus.
+Demikian cara memasak kepiting asam manis sederhana. Buatlah masakan ini dalam porsi lebih untuk dinikmati bersama keluarga.
 
 10. gurame 
 
 • Alat & Bahan
 
+1 ekor ikan ukuran sedang
+air jeruk
+2 ruas jari kunyit (dhaluskan)
+MInyak goreng untuk menggoreng
+2 cm lengkuas, diris-iris
+2 cm jahe, diris,iris
+1 cm kunyit, diris-iris
+1 cm kencur, diiris-iris
+80 gram Bawang merah
+70 gram Bawang putih
+4 buah Cabe merah
+8 buah Cabe rawit
+Bumbu wangen khas bali
+Terasi secukupnya
+2 lembar Daun jeruk
+1 batang Serai, dimemarkan
+Garam secukupnya
+Gula merah secukupnya
+Santan secukupnya
+Air kaldu secukupnya
 
 • Proses Pembuatan
 
+Ikan gurame dibesihkan kemudian buang sisiknya dan juga buang isi perutnya, lalu sayat-sayat bagian badan ikan kemudian cuci hingga bersih, selanjutnya celupkan pada campuran air jeruk dan juga kunyit, sambil dipijat-pijat agar bau amis ikan gurame akan hilang dan jika diolah akan terasa lezat.
+Selanjutnya panaskan minyak goreng, kemudian goreng ikan gurame hingga matang dan kering, angkat lalu tiriskan.
+Setelah itu siapkan bahan untuk membuat bumbu nyat-nyat, yang pertama adalah siapkan ulekan kemudian masukan lengkuas, jahe, kunyit dan juga kenur, lalu ulek kasar, selanjutnya tambahkan bawang merah, bawang putih, cabe merah dan cabe rawit. Lalu ulek hingga halus kemudian tambahkan bumbu wangen lalu ulek lagi hingga halus.
+Selanjutnya panaskan miyak goreng secukupnya lalu tumis bahan bumbu halus hingga harum, kemudian tambahkan terasi, daun jeruk, kemudian serai, garam dan juga gula merah, lalu aduk-aduk hingga rata.
+Selanjutnya tambahkan pula santan dan juga air kaldu kedalam tumisan tersebut, aduk-aduk hingga mendidih dan juga mengental.
+Selanjutnya masukan ikan gurame goreng, lalu aduk-aduk hingga bumbu meresep.
+Angkat, simpan ikan gurame pada piring saji lalu siram kembali ikan gurame diatasnya dengan bumbu nyat-nyat nya. Siap disajikan.
