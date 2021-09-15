@@ -4,17 +4,155 @@
 5. lele
 
 • Alat & Bahan
+Bahan:
+- 1/2 kg ikan lele digoreng
+- 1 paket kecil santan kelapa
+- Secukupnya cabai rawit utuh
+- Secukupnya kemangi
+- 1 serai geprek
+- 2 daun salam
+- 2 daun jeruk purut
+- Lengkuas geprek
+- Garam, penyedap rasa, gula secukupnya
+- Air secukupnya
+Bumbu halus:
+- 1 sdt ketumbar
+- 3 bawang putih
+- 4 bawang merah
+- 2 ruas kunyit
+- 1 kencur
+- 2 kemiri
 
 
 • Proses Pembuatan
+Cara memasak:
+- Tumis bumbu halus bersama lengkuas, daun salam dan daun jeruk purut sampai harum.
+- Masukkan santan, tambahkan air secukupnya, masukkan garam, penyedap rasa.
+- Masukkan ikan lele yang sudah digoreng, lalu tambahkan cabe rawit utuh, aduk rata.
+- Koreksi rasa, sesaat sebelum diangkat masukkan kemangi, aduk sebentar lalu matikan api.
+- Mangut lele siap disajikan.
+
+
+• Alat & Bahan
+Bahan:
+- 250 gr fillet lele
+- cuka secukupnya
+- 3 sdm tepung segitiga
+- 1 sdm tepung beras
+- Garam
+- Gula
+- Penyedap
+- Merica
+- air secukupnya
+Bumbu halus:
+- 5 siung bawang putih
+- 2 siung bawang putih
+- 1 ruas kecil kunyit
+- 1 sdt ketumbar
+- 1/2 sdt merica
+- Garam dan penyedap secukupnya
+
+
+• Proses Pembuatan
+Cara memasak:
+- Lumuri fillet lele dengan cuka, diamkan sebentar, lalu cuci bersih.
+- Lumuri lele dengan bumbu halus, diamkan minimal 15 menit.
+- Panaskan minyak dengan api sedang.
+- Campur bahan pelapis: tepung terigu, tepung beras, garam, gula, merica dan penyedap. Aduk rata dan tambahkan air.
+- Lumuri lele dengan adonan pelapis, goreng sampai keemasan, balik hanya 1 kali saja.
+- Hidangkan.
+
+
+
 
 
 8. udang
 
 • Alat & Bahan
+Bahan :
+
+– 300 gram udang, kupas kulitnya
+
+– 50 gram tepung terigu
+
+– 1 sendok makan tepung beras
+
+– 75 gram tepung bumbu siap saji
+
+– 3 siung bawang putih
+
+– 1 buah jeruk nipis
+
+– Garam dan ketumbar sesuai selera
+
+– Air
+
+– Minyak goreng
 
 
 • Proses Pembuatan
+1.  Cuci bersih udang terlebih dahulu, buang bagian kulitnya dan masukkan dalam wadah.
+
+2. Tambahkan perasan air jeruk nipis, balurkan hingga semua bagin udang terlumuri, lalu diamkan hingga 30 menit. Langkah ini bertujuan untuk menghilangkan bau amis pada udang.
+
+3. Haluskan bawang putih dan ketumbar.
+
+4. Setelah direndam air perasan jeruk nipis, tiriskan udang lalu tambahkan bumbu halus tadi. Aduk merata dan diamkan kembali.
+
+5. Selanjutnya, masukkan tepung terigu, tepung bumbu, dan tepung beras pada wadah lainnya untuk membuat adonan kulit.
+
+6. Tambahkan air sedikit demi sedikit pada adonan tepung hingga tekstur adonan sesuai.
+
+7. Balurkan udang ke dalam adonan tepung hingga merata.
+
+8. Panskan minyak goreng, lalu goreng udang yang telah dibalut adonan tepung hingga berwarna kuning kecoklatan. Jangan lupa bolak-balik agar tidak kosong.
+
+9. Setelah matang, angkat dan tiriskan.
+
+10. Siapkan piring saji untuk hidangan olahan udang goreng. Tambahkan saos sambal sebagai cocolan agar lebih mantab.
+
+• Alat & Bahan
+Bahan :
+
+–  300 gram udang ukuran sedang
+
+– 2 siung bawang putih, dicincang halus
+
+– 2 cabai merah, diiris tipis-tipis
+
+– 1 buah jeruk nipis
+
+– 1 sendok teh saus ikan
+
+– 3 endok makan saus tomat
+
+– ½ sensok teh saus inggris
+
+– Garam, gula, dan merica bubuk secukupnya
+
+– Air
+
+
+
+
+• Proses Pembuatan
+Cara Membuat :
+
+1. Pertama, cuci bersih udang terlebih dahulu. Kemudian buang bagian kulit, kepala, dan belah bagian punggungnya.
+
+2. Tambahkan air perasan jeruk nipis dan balurkan secara merata pada udang untuk menghilangkan bau amisnya.
+
+3. Buat saus yang terdiri dari saus tomat, saus ikan, saus inggris, gula, garam, dan merica bubuk.
+
+4. Kemudian panaskan minyak untuk menggoreng udang sebentar hingga berwarna kemerahan.
+
+5. Panaskan minyak kembali untuk menumis bawang putih yang telah dicincang halus hingga harum. Tambahkan irisan cabai merah dan tumis hingga layu.
+
+6. Selanjutnya, masukkan campuran saus ke dalam tumisan bumbu dan tambahkan sedikit air. Masak hingga mendidih.
+
+7. Setelah mendidih, masukkan udang yang telah digoreng sebelumnya dan aduk hingga tercampur merata. Koreksi rasa sebentar, bisa ditambahkan garam, gula, atau merica jika masih kurang.
+
+8. Setelah bumbu meresap, angkat lalu hidangkan.
 
 
 <!-- handy -->
